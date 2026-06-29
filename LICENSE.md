@@ -1,4 +1,4 @@
-# 
+# Experience jump to steal lucky blocks like never before with jump to steal lucky blocks elite Scripts, the #1 Script. Includes private server access
 
 
 
